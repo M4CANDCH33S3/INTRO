@@ -1,6 +1,11 @@
 # INTRO
 
-![image1](https://github.com/user-attachments/assets/f28e2dc1-4771-45d8-a221-e32bad0e811b) ![image12](https://64.media.tumblr.com/cb04e530717a45ce298aa5438da9cf4a/3fa2656a4f5d81a2-44/s100x200/52941f9cbbe014d5bc7008e3294025a2378a6426.pnj)
+<img src="https://github.com/user-attachments/assets/f28e2dc1-4771-45d8-a221-e32bad0e811b](https://64.media.tumblr.com/d5b570c3590dd4e0c3b980f03d45d0e6/a854280606c801d9-d5/s100x200/ef6ec54c37b30b31435cb6cad109dcbc7b7badc3.pnj" 
+     width="25" 
+     height="25" />
+     <img src="https://github.com/user-attachments/assets/f28e2dc1-4771-45d8-a221-e32bad0e811b](https://64.media.tumblr.com/d5b570c3590dd4e0c3b980f03d45d0e6/a854280606c801d9-d5/s100x200/ef6ec54c37b30b31435cb6cad109dcbc7b7badc3.pnj](https://64.media.tumblr.com/cb04e530717a45ce298aa5438da9cf4a/3fa2656a4f5d81a2-44/s100x200/52941f9cbbe014d5bc7008e3294025a2378a6426.pnj)" 
+     width="25" 
+     height="25" />
 
 , , 𝓶ac or mothra ✦ he xe
 ˖ ࣪ㅤeng only 𓏴 isfp-t 𓏴 sys
