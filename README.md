@@ -1,6 +1,6 @@
 # INTRO
 
-![imag1](https://64.media.tumblr.com/d5b570c3590dd4e0c3b980f03d45d0e6/a854280606c801d9-d5/s100x200/ef6ec54c37b30b31435cb6cad109dcbc7b7badc3.pnj)
+![image1](https://64.media.tumblr.com/d5b570c3590dd4e0c3b980f03d45d0e6/a854280606c801d9-d5/s100x200/ef6ec54c37b30b31435cb6cad109dcbc7b7badc3.pnj)
 
 , , 𝓶ac or mothra ✦ he xe
 ˖ ࣪ㅤeng only 𓏴 isfp-t 𓏴 sys
@@ -16,4 +16,4 @@ where i feel safe /lyr
 
 
 
-[![image3][([https://64.media.tumblr.com/017c2f3a768390bf875297b9aebc8ce8/3fa2656a4f5d81a2-49/s100x200/b0f47a84c011b946d87b988c30635df5578d2231.pnj](https://tenor.com/view/scp-079-gif-14697546866348755802))](https://tenor.com/view/scp-079-gif-14697546866348755802)](https://tenor.com/view/scp-079-gif-14697546866348755802)
+![image2](https://tenor.com/view/scp-079-gif-14697546866348755802)
