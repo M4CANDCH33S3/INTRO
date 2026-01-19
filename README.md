@@ -1,6 +1,6 @@
 # INTRO
 
-![image1](https://64.media.tumblr.com/d5b570c3590dd4e0c3b980f03d45d0e6/a854280606c801d9-d5/s100x200/ef6ec54c37b30b31435cb6cad109dcbc7b7badc3.pnj)
+
 
 , , 𝓶ac or mothra ✦ he xe
 ˖ ࣪ㅤeng only 𓏴 isfp-t 𓏴 sys
@@ -16,4 +16,4 @@ where i feel safe /lyr
 
 
 
-![image2](https://files.catbox.moe/ct5ubc.mp4)
+![image1](https://64.media.tumblr.com/d5b570c3590dd4e0c3b980f03d45d0e6/a854280606c801d9-d5/s100x200/ef6ec54c37b30b31435cb6cad109dcbc7b7badc3.pnj)
